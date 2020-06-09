@@ -12,3 +12,5 @@ Mehmet Çolak
 Cüneyt Balcı
 
 Ogün Berat Gürses
+
+Sunum Videosu:
