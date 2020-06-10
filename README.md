@@ -13,4 +13,4 @@ Cüneyt Balcı
 
 Ogün Berat Gürses
 
-Sunum Videosu:
+Sunum Videosu: https://www.youtube.com/watch?v=ReouQs6Xues
